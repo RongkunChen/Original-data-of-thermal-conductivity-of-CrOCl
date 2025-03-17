@@ -1,0 +1,1 @@
+This is the original data for the article titled "Revealing the Role of Magnetic Disorder in Phonon Transport of Monolayer CrOCl," which is currently under submission. Please note that this is proprietary data. If you require access to it, kindly contact us via email at shiqian@ynu.edu.cn.
